@@ -1,4 +1,4 @@
-### Seja bem-vindo! É um prazer mostrar a  sou Lucas Prates.
+### Seja bem-vindo!
 ##
 
 
